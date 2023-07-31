@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @OmairyR
+- 👋 Hi, I’m @Omairy 
 - 👀 I’m interested in UX Design
 - 🌱 I’m currently learning about user experience
 - 💞️ I’m looking to collaborate on product and UX design projects
